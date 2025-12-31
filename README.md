@@ -114,5 +114,5 @@ I believe practical learning is the key to mastering cybersecurity.
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: https://www.linkedin.com/in/vickysolanki  
-- 📧 Email: bunnysolanki12345678@gmail.com
+- 💼 LinkedIn: https://www.linkedin.com/in/ratan-nishad 
+- 📧 Email: nratan802@gmail.com
